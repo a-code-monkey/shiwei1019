@@ -1,7 +1,7 @@
 ### Hi, Welcome to my space 👋
 
 
-**Thanks for visiting my GitHub profile, it's great to meet you here! 😊.
+** Thanks for visiting my GitHub profile, it's great to meet you here! 😊.
 
 Here are some ideas to get you started:
 
