@@ -1,7 +1,7 @@
-### Hi, Welcome to my space👋
+### Hi, Welcome to my space 👋
 
 
-**shiwei1019/shiwei1019** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**Thanks for visiting my GitHub profile, it's great to meet you here! 😊.
 
 Here are some ideas to get you started:
 
